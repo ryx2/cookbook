@@ -34,3 +34,5 @@ Ingredients:
 5. Add curry leaves and red chillis, saute
 6. add tomatoes
 7. boil until water has dissapeared
+8. add spices
+9. continue saute until oil separates
