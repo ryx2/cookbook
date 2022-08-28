@@ -8,6 +8,8 @@
 
 ### Tomato Garlic Chutney
 
+![Alt text](/photos/chut.jpg?raw=true "Optional Title")
+
 Makes 4 meals worth
 
 Ingredients:
