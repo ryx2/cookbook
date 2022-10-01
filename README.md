@@ -36,3 +36,7 @@ Ingredients:
 7. boil until water has dissapeared
 8. add spices
 9. continue saute until oil separates
+
+
+### CALI BURRITO
+with umami fries, eggs, quick pickled jicama, watermelon radish, avocado, vegan chorizo, cheese, salsa rojo on the side  
