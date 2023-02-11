@@ -40,3 +40,5 @@ Ingredients:
 
 ### CALI BURRITO
 with umami fries, eggs, quick pickled jicama, watermelon radish, avocado, vegan chorizo, cheese, salsa rojo on the side  
+
+### bastilla moroccan dish 
