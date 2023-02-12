@@ -44,7 +44,7 @@ with umami fries, eggs, quick pickled jicama, watermelon radish, avocado, vegan 
 ### bastilla moroccan dish 
 
 ### Sambar dish recipe
-Pressure cook
+Pressure cook for 5 mins 
 * 1/2 cup soaked and washed toor dal (soak for 30 mins)
 * 2 green chillies
 * 2 garlic cloves
