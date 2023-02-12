@@ -42,3 +42,30 @@ Ingredients:
 with umami fries, eggs, quick pickled jicama, watermelon radish, avocado, vegan chorizo, cheese, salsa rojo on the side  
 
 ### bastilla moroccan dish 
+
+### Sambar dish recipe
+Pressure cook
+1/2 cup soaked and washed toor dal (soak for 30 mins)
+2 green chillies
+2 garlic cloves
+A spring of curry leaves
+2 tomatoes
+Pinch or turmeric
+3/4 cup water
+
+Dry roast
+1/4 tsp fenugreek seeds
+1/4 tsp zeera seeds
+1/4 tsp pepper
+1 1/4 tbsp coriander seeds
+3 red chillies
+1/4 cup grated coconut
+water + grind to a paste
+
+Stir fry
+mustard seed
+10-20 shallots
+curry leaves
+2-3 red chiles
+
+put in the pressure cooked stuff into the stir fry
