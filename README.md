@@ -69,3 +69,6 @@ Stir fry
 * 2-3 red chiles
 
 put in the pressure cooked stuff into the stir fry
+
+### king trumpet mushrooms
+just stir fry em wit salt and oil
