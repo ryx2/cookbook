@@ -72,3 +72,12 @@ put in the pressure cooked stuff into the stir fry
 
 ### king trumpet mushrooms
 just stir fry em wit salt and oil
+
+### lions mane mushrooms
+just stir fry em wit salt and oil
+
+### beet hummus
+1 can chicpea 1 beet 2 spoons tahini 3 cloves garlic quarter cup oil and a lemon blend it
+
+### green rice
+Green rice
