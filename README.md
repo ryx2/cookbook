@@ -81,3 +81,6 @@ just stir fry em wit salt and oil
 
 ### green rice
 Green rice
+
+### garlic roast chinese eggplant
+https://omnivorescookbook.com/chinese-eggplant-with-garlic-sauce/
