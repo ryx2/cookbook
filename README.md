@@ -84,3 +84,17 @@ Green rice
 
 ### garlic roast chinese eggplant
 https://omnivorescookbook.com/chinese-eggplant-with-garlic-sauce/
+
+### chickpea salad
+1 can Chickpea 
+Quarter cup tahini
+15 cherry tomatoes 
+Half raw onion
+2 cloves raw garlic
+Curry powder
+Paprika / cayenne pepper 
+Salt
+Maple syrup
+Lime
+
+
