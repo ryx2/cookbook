@@ -97,6 +97,7 @@ Salt
 Maple syrup
 Lime
 
+Chickpea chard
 1 15 oz. can chickpeas, rinsed and drained (about 1.5 cups)
 4 tbsp olive oil (or butter)
 4 garlic cloves, thinly sliced
