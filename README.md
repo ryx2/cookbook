@@ -97,4 +97,10 @@ Salt
 Maple syrup
 Lime
 
+1 15 oz. can chickpeas, rinsed and drained (about 1.5 cups)
+4 tbsp olive oil (or butter)
+4 garlic cloves, thinly sliced
+1 28-32 oz jar favorite marinara sauce
+2 tsp smoked paprika (optional)
+2 cups finely chopped chard or kale
 
