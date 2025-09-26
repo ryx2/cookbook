@@ -138,3 +138,5 @@ Add garlic and red chili.
 
 Add pumpkin and cook, covering the top
 
+After 10m add fenugreek leaves and brown sugar 
+
