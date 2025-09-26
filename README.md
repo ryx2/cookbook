@@ -130,3 +130,7 @@ Lime
 - 1/2 tsp garam masala  
 - Fresh coriander leaves (for garnish) 
 
+Cook red chili, bay leaf, hing, cumin, fennel, mustard seeds. 
+
+Then mix, tumeric, coriander, red chili powder
+
