@@ -142,5 +142,3 @@ After 10m add fenugreek leaves and brown sugar
 
 Cook
 
-Add cinamon and cardamom 
-
