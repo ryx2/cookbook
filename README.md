@@ -105,3 +105,28 @@ Lime
 2 tsp smoked paprika (optional)
 2 cups finely chopped chard or kale
 
+### kabocha squash
+
+- 1/2 kg pumpkin  
+- 3–4 tsp mustard oil  
+- 1/4 tsp hing  
+- 1 bay leaf  
+- 2 dry red chillies  
+- 1 tsp cumin seeds  
+- 1/2 tsp fennel seeds  
+- 1/2 tsp mustard seeds  
+- 1/2 tsp fenugreek seeds  
+- 1/3 tsp coriander seeds  
+- 1 tsp Kashmiri red chilli powder  
+- 1/2 tsp turmeric powder  
+- 2 tsp coriander powder  
+- 1 inch ginger, finely chopped  
+- 2 green chillies, finely chopped  
+- 1 tsp salt  
+- 1/2 tsp black salt  
+- 2 tsp jaggery powder  
+- 1 tsp Kasturi methi  
+- 1 tsp amchoor powder  
+- 1/2 tsp garam masala  
+- Fresh coriander leaves (for garnish) 
+
