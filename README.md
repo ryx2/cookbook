@@ -134,5 +134,7 @@ Cook red chili, bay leaf, hing, cumin, fennel, mustard seeds.
 
 Then mix, tumeric, coriander, red chili powder, make it a paste by adding water, put in water.
 
-Add garlic and red chili
+Add garlic and red chili.
+
+Add pumpkin and cook
 
