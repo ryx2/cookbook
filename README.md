@@ -136,5 +136,5 @@ Then mix, tumeric, coriander, red chili powder, make it a paste by adding water,
 
 Add garlic and red chili.
 
-Add pumpkin and cook
+Add pumpkin and cook, covering the top
 
