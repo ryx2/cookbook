@@ -119,7 +119,7 @@ Lime
 - 1/3 tsp coriander seeds  
 - 1 tsp Kashmiri red chilli powder  
 - 1/2 tsp turmeric powder  
-- 2 tsp coriander powder  
+- 2 tbsp coriander powder  
 - 1 inch ginger, finely chopped  
 - 2 green chillies, finely chopped  
 - 1 tsp salt  
