@@ -130,7 +130,7 @@ Lime
 - 1/2 tsp garam masala  
 - Fresh coriander leaves (for garnish) 
 
-Cook red chili, bay leaf, hing, cumin, fennel, mustard seeds. 
+Cook red chili, bay leaf, hing, cumin, fennel seed, fenugreek, mustard seeds. 
 
 Then mix, tumeric, coriander, red chili powder, make it a paste by adding water, put in water.
 
