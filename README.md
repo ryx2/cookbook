@@ -144,3 +144,21 @@ Cook
 
 Add dried mango powder
 Add garam masala
+
+----
+Veggie Orzo
+
+1. Garlic chili flakes
+2. You do onion
+3. You do bell pepper
+4. You do tomato paste
+5. You cook all of that
+6. You add fresh tomatoes, and when it's liquidy and the tomatoes are starting to cook, you add orzo
+7. You cook the orzo and let it toast for a little bit
+8. You add water
+9. You add veggie bouillon paste
+10. You mix it all up and add chickpeas
+11. You let it cook till the orzo looks done
+12. Add more salt or chili flakes as you want it to taste
+13. In the end, when it's close to being done, you add your kale and then you add your cheese
+ 
