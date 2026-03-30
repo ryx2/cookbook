@@ -147,18 +147,35 @@ Add garam masala
 
 ----
 Veggie Orzo
-
-1. Garlic chili flakes
-2. You do onion
-3. You do bell pepper
-4. You do tomato paste
-5. You cook all of that
-6. You add fresh tomatoes, and when it's liquidy and the tomatoes are starting to cook, you add orzo
-7. You cook the orzo and let it toast for a little bit
-8. You add water
-9. You add veggie bouillon paste
-10. You mix it all up and add chickpeas
-11. You let it cook till the orzo looks done
-12. Add more salt or chili flakes as you want it to taste
-13. In the end, when it's close to being done, you add your kale and then you add your cheese
- 
+A cozy one-pot orzo with chickpeas, kale, and cheese
+Ingredients
+1 tbsp olive oil
+3 piece garlic cloves, minced
+1/2 tsp chili flakes
+1 piece onion, diced
+1 piece bell pepper, diced
+1 tbsp tomato paste
+2 piece fresh tomatoes, chopped
+6.0 oz orzo
+2 cup water
+1 tsp veggie bouillon paste
+7.1 oz canned chickpeas, drained
+2 cup kale, roughly chopped
+1 3/4 oz cheese (feta or parmesan)
+1/2 tsp salt
+Steps
+1. Heat 1 tbsp olive oil over medium heat. Add 3 piece garlic cloves, minced, 1/2 tsp chili flakes, and 1
+piece onion, diced. Cook until the onion is soft and translucent. (5m)
+2. Add 1 piece bell pepper, diced and 1 tbsp tomato paste. Stir and cook for a couple of minutes until
+fragrant. (2m)
+3. Add 2 piece fresh tomatoes, chopped and cook until they break down and get liquidy. Stir in 6.0 oz orzo
+and let it toast for a minute or two. (3m)
+4. Pour in 2 cup water and stir in 1 tsp veggie bouillon paste. Add 7.1 oz canned chickpeas, drained and
+1/2 tsp salt. Stir everything together, bring to a simmer, and cook until the orzo is tender. Stir
+occasionally and add a splash more water if it gets too dry. (12m)
+5. When the orzo is nearly done, fold in 2 cup kale, roughly chopped and let it wilt. Crumble or grate 1 3/4
+oz cheese (feta or parmesan) on top. Taste and adjust salt and chili flakes as needed.
+Notes
+The orzo absorbs a lot of liquid — keep an eye on it and add more water if needed. About half a can of
+chickpeas works perfectly for 2 people. Feta crumbled on top is great; parmesan stirred in makes it
+creamier.
